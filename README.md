@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @EssiRoberto
 - 👀 I’m interested in becoming a Software Engineer 
-- 🌱 I’m currently learning the basics of programming fundamental 
+- 🌱 I’m currently learning the basics of programming fundamental which is not as easy as I thought. 
 - 💞️ I’m looking to collaborate on different project which may arise in my course of pursuit 
 - 📫 How to reach me .... +2348155738660
 
